@@ -1,1 +1,1 @@
-[atabook](https://katethechaser.atabook.org/)　[rentry](https://rentry.co/slenderthearrival)　[strawpage]()
+[atabook](https://katethechaser.atabook.org/)　[rentry](https://rentry.co/slenderthearrival)　
